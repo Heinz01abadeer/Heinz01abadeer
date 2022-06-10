@@ -3,7 +3,7 @@
 ⚠️ Essa conta será deletada futuramente!
 
 - 👨‍💻 Estudante de segurança da informação (Hacking)
-- 🐧 Quack quack
+- 🐧 Wenk Wenk 
 - 👓 Q.I. = Negativo
 
 <div>
